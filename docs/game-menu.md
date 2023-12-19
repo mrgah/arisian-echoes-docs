@@ -38,10 +38,6 @@ Because Savage Worlds is so flexible and fun, it's allowed for the creation of l
 
 # Other games that are fun for pickup games
 
-## Brindlewood Bay
-
-This may need no introduction (because I talk about it all the time) but Brindlewood Bay is a game of elderly female members of a murder mystery book club who solve mysteries of their own in the coastal town of Brindlewood Bay. At the same time, they gradually uncover darker goings on in their little community. Fun and easy to pick up, it lends itself to telling surprisingly compelling stories about older women, their lives, and the mysteries they solve. It's pretty great. 
-
 ## Dungeon Crawl Classics
 
 A straightforward, fun, often fairly lethal variant of D&D. Spellcasters roll dice to cast spells (with sometimes hilarious or excessive results), fighters are good at stunts and stabbing them with the pointy end, and there are a lot of great adventure modules. Plays best with a decent adventuring party, given the lethality, so we might need four or more players. 
